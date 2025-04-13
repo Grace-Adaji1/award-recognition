@@ -1,2 +1,6 @@
-# award-recognition
-Certificate of Recognition for Academic Excellence – Centennial College (2025)
+# 🏅 Academic Award – Centennial College
+
+This certificate recognizes my outstanding academic performance during the Business Analytics program.
+
+📄 Attached: Certificate of Recognition (2025)
+
